@@ -1,1 +1,1 @@
-# maximpromaxim/classDarkSize
+# classDarkSize.github.io
